@@ -1,0 +1,3 @@
+- 👋 ¡Hola!, somos @proyectoaleg (Aprende a Leer y Escribir Gratis).
+- 👀 Estamos interesados en impulsar el aprendizaje de la lectura y escritura.
+- 💞️ Tú puedes aportar tu granito de arena.
